@@ -1,1 +1,5 @@
-E. if you are reading this. We need to talk. Something is urgent
+You(still E) have the lever. Forgive me if I made this public but I dont know how to reach out to you besides this way. 
+In the normal Trolley Problem, if I would you I would see if you can break the rails first...
+Be careful with this one too...think carefully...
+Anyway, I might have messed up our friendships badly, but I really just want you to know that I missed the good old days.
+I hope you are doing well. Truly yours.
