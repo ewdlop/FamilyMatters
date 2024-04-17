@@ -4,4 +4,4 @@ Y axis is emotion stability. The person at the bottom of the pit might needs hel
 
 <img width="1153" alt="WhatIsInMyMind" src="https://github.com/ewdlop/BurdenOEternaity/assets/25368970/365a801a-92f0-4a34-aa17-b68eb309ed47">
 
-We are technically part of the bad news I think...I hope I am wrong
+We are technically part of all a bad news I think...I hope I am wrong
