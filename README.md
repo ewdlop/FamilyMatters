@@ -1,8 +1,17 @@
-Emergency Contact/Communcation Methods:
+Possbile Emergency Contact/Communcation Methods:
 
-911, Portable radio, GPR, Rescue Beacons
-Satellite Emergency Devices
-RTT/Tty 
-Personal Voice
-VoIP app vs VoIP phone vs Landline
-Talk radio
+  911, 
+  
+  Portable radio, Talk radio
+  
+  PLD, SEND
+  
+  GPR
+  
+  RTT/Tty 
+
+  Personal Voice
+
+  VoIP: app, phone, Cloud Telephony 
+  
+  Landline
