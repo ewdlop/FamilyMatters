@@ -1,0 +1,25 @@
+Back around Summertime 2023
+
+(subject to correction, up to certain degree of freedom idk)
+
+Subject: Reflection and Closure 
+
+Dear Esme, 
+
+I trust this letter finds you in both good health and high spirits. I pen this with a heavy heart, yet with clear understanding, as I aim to articulate my feelings and thoughts about our friendship from my perspective and bring closure to our shared chapter. 
+
+Over the past several months, our collaboration as colleagues has gifted me with many cherished moments, I wouldn't trade for anything. You've influenced my life in profound ways, contributing to my personal growth considerably. I'm grateful for your understanding towards my struggles. Admittedly, I've been known for my awkwardness around ladies, but with you, it was different. Your kindness, care, maturity, independence, intelligence, and sweetness set you apart. Your willingness to lend an ear during my rants or periods of upset, your trust in me, and our shared moments (like willing to together during that AC-less week in the office, or snacked on Green Tea Flavor Pockets, KitKat, and Goldfish Snacks), were all treasured times.  The way you smiled back at me every time I awkwardly stared at you was the nicest thing I can ever asked from you. Your thoughtful offer to sit next to me on a flight if we were to travel together, and the private moments after the working hours we spent deciphering those difficult tasks, are etched in my memory. Your desire to work on your task without relying on me was admirable. Even though our interactions were brief, they've filled my heart with treasured memories, shared laughter, and meaningful conversations. 
+
+I held back my feelings and did not share with you because I was afraid of rejection from you and making things awkward. When they moved you to another room, separating us after we'd sat side by side for so long, I felt you drifting further away. Seeing you moved to another room was like watching you drift away from me. This initiated a cascade of questions about fate and destiny. I wished I had moved to another room, sat next to you, spending more moments together. Then came your forced departure from the company was heart-wrenching for me. I felt as if hope had been snatched away. The thought of you leaving was so painful that it often brought me to tears. Prior to your departure, there were moments when I contemplated quitting my job, but the thought of a future without you was too overwhelming. You were the person I genuinely cared for, the one who held a special place in my heart.  You have always been a rare gem in my life, my precious Emerald, shining brighter than any diamond could. Now, I felt bereft, as if everything had been taken from me.  
+
+If I ever inadvertently upset you with my actions or words, I apologize for the negative emotions I might have projected onto you and for not being there when you needed help. I wish I was there for you the day you were forced to leave the company thinking that we might see each other again soon. I regret not being able to collaborate more with you on any JavaScript projects and wish I had spent more time with you. I deeply regret the day I left the Deal Lake Bar prematurely, particularly since you asked me to stay. In my naivety, I misconstrued your silence, believing that you preferred not to engage in conversation with me. It's only now, in hindsight, that I see it was I who wasn't contributing much to the conversations. In my haste to return home and bury myself in work, I lost an invaluable opportunity to connect with you more deeply. Often, I prioritized work over our friendship, foolishly believing that such sacrifices would ensure our future together. But this was a grave mistake. The realization of this mistake might have brought sorrow and distress to both of us, for which I apologize and ask for your forgiveness. 
+
+In these two weeks since we parted, it has become painfully apparent that the deep affection I hold for you might not be reciprocated. The greater mistake I've realized was prioritizing work over our relationship, which is inexcusable. It's essential that I acknowledge this reality, as painful as it is, to be fair to our feelings and honest with myself. This painful acknowledgement is a crucial step towards understanding, acceptance, and eventual healing. 
+
+I'd like to express my gratitude for your significant impact on my life over these past months. I genuinely wish you all the joy, love, and success life have to offer; you truly deserve it. My respect for you remains unaltered, and while our paths may now diverge, I hope life treats you kindly. Perhaps in time, our paths will cross again under happier circumstances. 
+
+On a lighter note, I do hope the unfortunate event in the salon didn't affect your beautiful hair. If you ever need assistance with JavaScript, any other coding language, or anything else, please don't hesitate to reach out. Lastly, please take care of yourself, sleep well, and enjoy your vacation in Tampa. 
+
+With utmost respect and sincerity, 
+
+Ray
