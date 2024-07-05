@@ -8,7 +8,8 @@
 - Personal Voice
 - VoIP: app, phone, Cloud Telephony
 - Landline
-
+- SMS Messaging using Gmail
+ 
   #
 - If you're reading this and are unaware of the situation, please refrain from getting involved. If this sentence contains any grammatical mistakes, please forgive me as I am not a native speaker of your language.
 
