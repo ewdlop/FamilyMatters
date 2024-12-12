@@ -1,6 +1,11 @@
 ### Possbile Emergency Contact/Communcation Methods:
 
 
+#
+
+早該習慣了
+
+
 https://www.microsoft.com/en-us/microsoft-365/microsoft-defender-for-individuals
 
 - 911,
